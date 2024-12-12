@@ -5,3 +5,6 @@ Varsovia (en polaco: Warszawa; AFI: [varˈʂava]ⓘ) es la capital y ciudad más
 
 ## Recomendación
 visitar los jardines Krasinski.
+
+## Foto
+![](https://upload.wikimedia.org/wikipedia/commons/3/35/Warsaw_montage.JPG)
