@@ -5,3 +5,6 @@ Tokio, la ajetreada capital de Japón, mezcla lo ultramoderno y lo tradicional, 
 
 ## Recomendación
 Visitar el Templo Sensoji.
+
+## Foto
+![](https://upload.wikimedia.org/wikipedia/commons/7/7e/Shinjuku_central_park_southwest.jpg)
