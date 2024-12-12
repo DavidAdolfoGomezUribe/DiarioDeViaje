@@ -5,3 +5,7 @@ Vilna2​ (en lituano: Vilnius pronunciado [ˈvʲɪlʲnʲʊs]ⓘ) es la capital 
 ​
 ## Recomendación
 visitar el Museo de Ocupaciones y Luchas por la Libertad:
+
+## Foto
+![](https://upload.wikimedia.org/wikipedia/commons/d/d2/Vilnus_Montage_%282016%29.png)
+
