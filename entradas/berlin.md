@@ -5,3 +5,7 @@ Berlín, capital alemana, data del siglo XIII. Los elementos que recuerdan la tu
 
 ## Recomendación
 visitar el Reichstag Building 
+
+## Foto
+![](https://upload.wikimedia.org/wikipedia/commons/8/83/Cityscape_Berlin.jpg)
+​
